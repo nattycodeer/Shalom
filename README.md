@@ -1,4 +1,4 @@
-# :boy: Hi I'm Shalom :wave: :runner: :book: :pencil2: :computer: :video_game: 
+# :boy: Hi, I'm Shalom :wave: :runner: :book: :pencil2: :computer: :video_game: 
 
 I'm nine year old author who is passionate about writing books, coding and youtubing video games such as Minecraft and others. 
 
