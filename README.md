@@ -1,1 +1,1 @@
-# :boy: Hi I'm Shalom :wave: :computer: :pencil2::book: :video_game: :runner:
+# :boy: Hi I'm Shalom :wave: :runner: :book: :pencil2: :computer: :video_game: 
